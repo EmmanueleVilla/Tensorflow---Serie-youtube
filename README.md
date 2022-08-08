@@ -10,7 +10,7 @@ Lead mobile developer, master’s degree student, Dungeon Master, 3d printer, an
 
 🌐 𝐒𝐈𝐓𝐎: https://www.emmanuelevilla.com
 
-📢 𝐂𝐀𝐍𝐀𝐋𝐄 𝐓𝐄𝐋𝐄𝐆𝐑𝐀𝐌: t.me/willyrs89
+📢 𝐂𝐀𝐍𝐀𝐋𝐄 𝐓𝐄𝐋𝐄𝐆𝐑𝐀𝐌: https://t.me/willyrs89
 
 Facebook: https://www.facebook.com/willyrs89
 
